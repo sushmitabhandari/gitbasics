@@ -1,2 +1,0 @@
-samreen
-bagawan
